@@ -11,3 +11,6 @@ i am a disco dances tadatada jindgi mera gaana fir na kisi ko lubbhanan rigin ma
 ## Projects 
 - the great : a line
 - the 2nd great : 2 line s
+
+## Contact
+- Email : adhyanshbhandari@gmail.com
